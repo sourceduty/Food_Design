@@ -81,6 +81,8 @@ Furthermore, the adoption of paper or cardboard collars can enhance a brand's im
 [Food Inhalent](https://github.com/sourceduty/Food_Inhalant)
 <br>
 [Animal Product](https://github.com/sourceduty/Animal_Product)
+<br>
+[Plant Food Creator](https://github.com/sourceduty/Plant_Food_Creator)
 
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
