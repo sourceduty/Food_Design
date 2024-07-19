@@ -123,10 +123,6 @@ Despite its potential, there are challenges to the widespread adoption of 3D pri
 </details>
 
 #
-
-![McDonald's Addiction](https://github.com/user-attachments/assets/b3c52d01-d92e-4b88-a332-c2d2b0200b31)
-
-#
 ### Related Links
 
 [Product Design](https://github.com/sourceduty/Product_Design)
