@@ -147,6 +147,8 @@ Despite its potential, there are challenges to the widespread adoption of 3D pri
 [Animal Product](https://github.com/sourceduty/Animal_Product)
 <br>
 [Plant Food Creator](https://github.com/sourceduty/Plant_Food_Creator)
+<br>
+[Food Balancer](https://github.com/sourceduty/Food_Balancer)
 
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
