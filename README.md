@@ -1,4 +1,4 @@
-![Poutine](https://github.com/user-attachments/assets/6127c316-b0f4-44db-8a2f-1b01d56a4bef)
+![Poutine](https://github.com/user-attachments/assets/d2206422-9bba-41e4-80bc-787cbfdcce8c)
 
 > Meals, snacks and drinks.
 
