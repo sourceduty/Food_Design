@@ -143,7 +143,7 @@ Despite its potential, there are challenges to the widespread adoption of 3D pri
 
 #
 
-![KFC meme](https://github.com/user-attachments/assets/fbabccfb-82c8-4a11-9441-4f23bdae767c)
+![KFC meme](https://github.com/user-attachments/assets/c4ce96bf-6054-48dd-b3c6-43dc2b5d4223)
 
 #
 ### Related Links
