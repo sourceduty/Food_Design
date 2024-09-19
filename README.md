@@ -142,6 +142,10 @@ Despite its potential, there are challenges to the widespread adoption of 3D pri
 ![Caveman Kraft Dinner](https://github.com/sourceduty/Food_Design/assets/123030236/08afbe22-5fab-45b2-a74d-f4ab14d8c3d4)
 
 #
+
+![KFC meme](https://github.com/user-attachments/assets/2c24d971-6c47-490b-9d57-5b5f1725d7c0)
+
+#
 ### Related Links
 
 [Product Design](https://github.com/sourceduty/Product_Design)
