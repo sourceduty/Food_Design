@@ -1,4 +1,4 @@
-https://github.com/user-attachments/assets/9c2bbbfa-b457-4daa-b723-f3cb10532aac
+![Wasted](https://github.com/user-attachments/assets/27dc961b-835b-4b18-82a4-a3a8afc1f492)
 
 > Meals, snacks and drinks.
 
@@ -148,6 +148,11 @@ Despite its potential, there are challenges to the widespread adoption of 3D pri
 #
 
 ![KFC meme](https://github.com/user-attachments/assets/c4ce96bf-6054-48dd-b3c6-43dc2b5d4223)
+
+#
+
+https://github.com/user-attachments/assets/9c2bbbfa-b457-4daa-b723-f3cb10532aac
+
 
 #
 ### Related Links
