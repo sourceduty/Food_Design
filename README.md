@@ -169,6 +169,8 @@ https://github.com/user-attachments/assets/9c2bbbfa-b457-4daa-b723-f3cb10532aac
 [Plant Food Creator](https://github.com/sourceduty/Plant_Food_Creator)
 <br>
 [Food Balancer](https://github.com/sourceduty/Food_Balancer)
+<br>
+[Vending Recycler](https://github.com/sourceduty/Vending_Recycler)
 
 ***
 Copyright (C) 2024, Sourceduty - All Rights Reserved.
