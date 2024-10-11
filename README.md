@@ -1,4 +1,4 @@
-![Food](https://github.com/user-attachments/assets/e8a63107-5d84-4c89-9ffa-53605e0cb905)
+![Timmies](https://github.com/user-attachments/assets/b688872d-c1a7-47c1-8fc5-fca6efcb2272)
 
 > Meals, snacks and drinks.
 
