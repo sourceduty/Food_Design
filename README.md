@@ -35,7 +35,7 @@ Cup holders are another critical element, especially for customers carrying mult
 #
 ### Banned Packaging
 
-![Banned](https://github.com/user-attachments/assets/521b3142-8aa3-424b-aaa1-47db107f57ef)
+![Banned](https://github.com/user-attachments/assets/984faf81-f3c7-4084-9d0d-bd1fa1eeea81)
 
 In recent years, many countries and municipalities have implemented laws to phase out or ban Styrofoam, plastic straws, and plastic cups in response to growing environmental concerns. Styrofoam, known technically as expanded polystyrene (EPS), has been a popular material for disposable food and drink containers due to its low cost and excellent insulating properties. However, it is non-biodegradable and difficult to recycle, leading to severe pollution in oceans and landfills. Consequently, cities like New York, San Francisco, and entire states such as New Jersey have imposed bans on the sale and distribution of Styrofoam containers. These laws often require businesses to transition to alternative materials like biodegradable or compostable options, and companies not in compliance can face fines or other penalties. The move away from Styrofoam is part of a broader effort to mitigate plastic pollution and encourage the use of more sustainable packaging solutions.
 
