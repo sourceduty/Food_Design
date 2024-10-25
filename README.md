@@ -117,7 +117,7 @@ In the realm of culinary arts, chefs and food creators strive to craft dishes th
 #
 ### Butt Chug
 
-![Butt Chugging](https://github.com/user-attachments/assets/b31300b0-aabb-4978-84e3-6800fb50031f)
+![Butt Chugging](https://github.com/user-attachments/assets/e0e3a478-9f9b-4657-90b3-ebdb3f0cd9a2)
 
 Butt chugging, also known as "alcohol enemas," is a practice where alcohol is introduced into the body via the rectum rather than through oral ingestion. This method bypasses the stomach and its enzymatic breakdown process, allowing alcohol to be rapidly absorbed through the walls of the intestines and directly into the bloodstream. Because the alcohol enters the body so quickly and with higher potency, the practice can lead to immediate intoxication, often far more intense than drinking the same amount would cause. However, this can also pose severe health risks, including alcohol poisoning, as there is little control over the absorption rate and no "stomach barrier" to slow down or expel excess alcohol.
 
