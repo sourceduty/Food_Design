@@ -115,6 +115,15 @@ Cultural and personal factors play a significant role in what triggers a food or
 In the realm of culinary arts, chefs and food creators strive to craft dishes that can elicit these profound sensory responses. By paying attention to the harmony of flavors, textures, and presentation, they aim to create not just a meal, but an experience that lingers in the memory of their patrons. The concept of food orgasms underscores the importance of the multisensory nature of eating and the deep emotional connections we have with food. It highlights how a thoughtfully prepared meal can be more than just nourishment; it can be an art form that brings immense joy and pleasure, elevating the act of eating to an almost spiritual experience.
 
 #
+### Butt Chug
+
+![Butt Chugging](https://github.com/user-attachments/assets/b31300b0-aabb-4978-84e3-6800fb50031f)
+
+Butt chugging, also known as "alcohol enemas," is a practice where alcohol is introduced into the body via the rectum rather than through oral ingestion. This method bypasses the stomach and its enzymatic breakdown process, allowing alcohol to be rapidly absorbed through the walls of the intestines and directly into the bloodstream. Because the alcohol enters the body so quickly and with higher potency, the practice can lead to immediate intoxication, often far more intense than drinking the same amount would cause. However, this can also pose severe health risks, including alcohol poisoning, as there is little control over the absorption rate and no "stomach barrier" to slow down or expel excess alcohol.
+
+The method has gained notoriety due to its dangerous health implications and the possibility of resulting in fatal overdose due to the body's limited ability to expel alcohol taken in this manner. Butt chugging has been popularized in certain social media circles and has occasionally appeared in college and fraternity environments. The extreme nature of the practice and the high risk of toxicity have prompted health officials and medical professionals to issue strong warnings against it. Because of the direct absorption into the bloodstream, even small amounts can overwhelm the liver, making butt chugging both risky and potentially fatal.
+
+#
 ### Food Notes
 
 <details><summary>Can and Bottle Collars</summary>
