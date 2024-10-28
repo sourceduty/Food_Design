@@ -1,3 +1,4 @@
+![Pringles Man](https://github.com/user-attachments/assets/f3f1346c-5b8c-4dba-a5c1-e0441a16f031)
 ![Timmies](https://github.com/user-attachments/assets/b688872d-c1a7-47c1-8fc5-fca6efcb2272)
 
 > Meals, snacks and drinks.
