@@ -1,5 +1,5 @@
+![Bigfoot Bubble Bath   Beer](https://github.com/user-attachments/assets/b4d27651-9dcd-4a20-9c29-cdaf3e056e2a)
 ![Pringles Man](https://github.com/user-attachments/assets/f3f1346c-5b8c-4dba-a5c1-e0441a16f031)
-![Timmies](https://github.com/user-attachments/assets/b688872d-c1a7-47c1-8fc5-fca6efcb2272)
 
 > Meals, snacks and drinks.
 
@@ -28,6 +28,8 @@ While heating cream or milk before adding it to coffee might seem like an extra 
 
 #
 ### To-Go Beverage Cups
+
+![Timmies](https://github.com/user-attachments/assets/b688872d-c1a7-47c1-8fc5-fca6efcb2272)
 
 To-go cups, lids, and cup holders are essential components of food packaging design, especially in the quick-service restaurant industry. These items are designed to enhance convenience, safety, and the overall experience for customers taking their beverages on the go. To-go cups typically come in various sizes and materials, such as paper, plastic, or compostable options, depending on the type of beverage and the brand’s sustainability goals. For hot beverages, cups are often double-walled or include a sleeve to protect customers' hands from heat. Lids must be securely fitted to prevent spills and should allow for easy drinking, whether through a spout, a straw opening, or a sippable slot. In recent years, designers have increasingly focused on ergonomic lid shapes and materials that provide a secure seal while accommodating the shape of the mouth and lips for a comfortable drinking experience.
 
