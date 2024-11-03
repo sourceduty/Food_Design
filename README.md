@@ -193,7 +193,7 @@ Despite its potential, there are challenges to the widespread adoption of 3D pri
 #
 https://github.com/user-attachments/assets/9c2bbbfa-b457-4daa-b723-f3cb10532aac
 #
-![Olden Food](https://github.com/user-attachments/assets/2056c259-2d49-4493-8f90-08e0b1f8d216)
+![Olden Food](https://github.com/user-attachments/assets/4742e351-8b07-40bf-a248-57abb5750fa8)
 #
 ![Feast](https://github.com/user-attachments/assets/1afab873-d8d2-42e8-b5b0-a0c9b944fec2)
 #
