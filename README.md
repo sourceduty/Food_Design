@@ -36,6 +36,15 @@ To-go cups, lids, and cup holders are essential components of food packaging des
 Cup holders are another critical element, especially for customers carrying multiple drinks. They are designed to hold cups of varying sizes, typically ranging from 12 to 24 ounces, and are often made from molded pulp, cardboard, or plastic. Standardization in the dimensions of cup holders has helped ensure compatibility with most vehicle cup holders, making it easier for customers to transport beverages without spills. The structure of cup holders must also balance sturdiness and weight, as they need to be durable enough to carry several drinks yet lightweight for easy transport. Moreover, sustainability is increasingly influencing cup holder design, with many companies now opting for recyclable or compostable materials to reduce environmental impact. Standard sizes and shapes are essential to ensure that to-go cups, lids, and holders fit together seamlessly across various beverage types, enhancing the overall functionality and customer satisfaction in food packaging design.
 
 #
+### Gayness of Branding
+
+![Gayness](https://github.com/user-attachments/assets/f08ea7c2-307c-408d-9fe7-7f6bdc856dca)
+
+Buying products from a brand like Gay Lea doesn’t directly support LGBTQ+ people in the sense of profits being directed toward LGBTQ+ causes. The name “Gay Lea” actually originates from a co-operative of Canadian dairy farmers, and "Gay" in this case refers to the idea of joy or happiness, which was a common naming convention at the time the brand was established. Gay Lea Foods is a cooperative structure, meaning profits are reinvested in the business or distributed among its farmer-members rather than toward specific social or political causes. However, supporting co-operative brands like Gay Lea could indirectly align with values of community-focused business models, which some might view as supportive of inclusive economies.
+
+Other brands in the dairy and food industry with similar cooperative or community-centered structures include Organic Valley, Tillamook, and Cabot Creamery. These brands often have similar models of ownership and revenue-sharing structures among farmer-members or small producers, emphasizing sustainability and community support. Although these brands don’t specifically target LGBTQ+ causes, they share values related to community benefit, ethical production, and local support.
+
+#
 ### Banned Packaging
 
 ![Banned](https://github.com/user-attachments/assets/984faf81-f3c7-4084-9d0d-bd1fa1eeea81)
