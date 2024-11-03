@@ -27,6 +27,13 @@ Heating the cream or milk before adding it to the coffee can mitigate this issue
 While heating cream or milk before adding it to coffee might seem like an extra step, it can indeed be optimal for maintaining the ideal drinking temperature. For coffee enthusiasts who prioritize flavor and temperature, this small adjustment can make a noticeable difference in their coffee experience. It’s particularly useful in colder environments where the temperature of the coffee can drop rapidly after being served.
 
 #
+### Black Branding
+
+![Banned](https://github.com/user-attachments/assets/be477f41-0f80-431a-bb09-f20e8bfae756)
+
+The packaging of brands like Aunt Jemima and Uncle Ben’s, which had long featured caricatured depictions of African-American figures, has recently come under intense scrutiny and has been retired due to criticisms regarding racial stereotypes. These brands, historically established with logos that reflected racial stereotypes from the 19th and early 20th centuries, faced mounting pressure to change in response to broader societal conversations around racial equality and inclusivity. Aunt Jemima’s logo, portraying a smiling Black woman originally modeled after a “mammy” stereotype, and Uncle Ben’s, featuring a Black man in a servant role, were both seen as perpetuating outdated and offensive depictions. In 2021, these brands rebranded as Pearl Milling Company and Ben’s Original, respectively, removing these iconic yet controversial images from their packaging to align with modern values of equality and respect.
+
+#
 ### To-Go Beverage Cups
 
 ![Timmies](https://github.com/user-attachments/assets/b688872d-c1a7-47c1-8fc5-fca6efcb2272)
