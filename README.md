@@ -208,8 +208,9 @@ https://github.com/user-attachments/assets/9c2bbbfa-b457-4daa-b723-f3cb10532aac
 #
 ![Feast](https://github.com/user-attachments/assets/1afab873-d8d2-42e8-b5b0-a0c9b944fec2)
 #
-
 ![Wasted](https://github.com/user-attachments/assets/27dc961b-835b-4b18-82a4-a3a8afc1f492)
+#
+![DAMN BOI](https://github.com/user-attachments/assets/1c74929a-489b-459f-b11d-e087816a1398)
 
 #
 ### Related Links
