@@ -43,6 +43,13 @@ On the other end of the spectrum, British tea culture also embraces affordable o
 The packaging of brands like Aunt Jemima and Uncle Ben’s, which had long featured caricatured depictions of African-American figures, has recently come under intense scrutiny and has been retired due to criticisms regarding racial stereotypes. These brands, historically established with logos that reflected racial stereotypes from the 19th and early 20th centuries, faced mounting pressure to change in response to broader societal conversations around racial equality and inclusivity. Aunt Jemima’s logo, portraying a smiling Black woman originally modeled after a “mammy” stereotype, and Uncle Ben’s, featuring a Black man in a servant role, were both seen as perpetuating outdated and offensive depictions. In 2021, these brands rebranded as Pearl Milling Company and Ben’s Original, respectively, removing these iconic yet controversial images from their packaging to align with modern values of equality and respect.
 
 #
+### Chewing Gum
+
+![Wonka's Gum](https://github.com/user-attachments/assets/e94b1b43-2c05-4125-a4e8-9904dea45dce)
+
+Chewing gum is a widely enjoyed food product that has been around for centuries, evolving from natural tree resins to modern, synthetic formulations. Originating from the ancient practice of chewing tree sap, gum became industrialized in the 19th century, and today it is produced in a wide array of flavors, colors, and textures. Its popularity spans all age groups and regions, serving as a versatile, convenient treat that can freshen breath, satisfy cravings, or simply provide a pleasant sensory experience. The act of chewing itself has been associated with stress relief, making gum a popular choice for people seeking small moments of relaxation throughout the day.
+
+#
 ### To-Go Beverage Cups
 
 ![Timmies](https://github.com/user-attachments/assets/b688872d-c1a7-47c1-8fc5-fca6efcb2272)
