@@ -16,6 +16,13 @@ Food design also plays a crucial role in addressing cultural and social aspects 
 Sustainability is another critical component of food design. As concerns about environmental impact and food waste grow, food designers are increasingly focusing on creating sustainable and eco-friendly solutions. This includes using locally sourced and seasonal ingredients, minimizing waste, and designing for longevity and reuse. By prioritizing sustainability, food designers contribute to a more responsible and conscious food industry, ensuring that their creations are not only delicious and beautiful but also ethical and sustainable.
 
 #
+### Daydrinking
+
+![Daydrink](https://github.com/user-attachments/assets/c7a47698-19d7-4661-8966-0686d06698f6)
+
+Daydrinking refers to consuming alcohol during the daytime, often as part of social gatherings or casual relaxation. It can take place at events such as brunches, outdoor barbecues, or parties, where alcohol is consumed earlier than the typical evening hours. While daydrinking can be enjoyable for many, it may lead to unintended consequences, including impaired judgment or a longer-lasting hangover, especially if alcohol is consumed in excess. Responsible daydrinking involves moderating alcohol intake and being mindful of the time spent consuming it to avoid negative effects.
+
+#
 ### Optimized Coffee Temperature with Warmed Cream or Milk
 
 ![Coffee](https://github.com/user-attachments/assets/668abc72-75ea-45cb-8be8-d216828f7f42)
